@@ -10,3 +10,4 @@ thirdthird
 아기 상어~!<br>
 
 baby shark tururu~
+可愛い　tururu~
