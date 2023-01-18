@@ -9,5 +9,5 @@ thirdthird
 바닷 속 뚜루둣뚜루<br>
 아기 상어~!<br>
 
-baby shark tururu~
+baby shark tururu~<br>
 可愛い　tururu~
