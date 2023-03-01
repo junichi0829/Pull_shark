@@ -7,7 +7,7 @@ forthforth<br>
 fifthfifth
 
 
-아기 상어 뚜루둣뚜루<br>
+아기 상어 뚜루둣뚜루룽<br>
 귀여운 뚜루둣뚜루<br>
 바닷 속 뚜루둣뚜루<br>
 아기 상어~!<br>
