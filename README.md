@@ -1,7 +1,7 @@
 # Pull_shark
 
 babyshark🐬<br>
-secondsecondsecond<br>
+secondsecond<br>
 thirdthirdthird<br>
 forthforthforth<br>
 fifthfifthfifth<br>
